@@ -1,4 +1,5 @@
 Connor Fogarty
+Lucas Smidt
 Caedmon Kline
 Claire Gu
 Sarah Deschamps
