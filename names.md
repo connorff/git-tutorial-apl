@@ -1,1 +1,2 @@
 Connor Fogarty
+Lucas Smidt
