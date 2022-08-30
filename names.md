@@ -1,4 +1,5 @@
 Connor Fogarty
+Kade Butterwegge
 Lucas Smidt
 Caedmon Kline
 Claire Gu
